@@ -179,3 +179,34 @@ I am a customer-focused professional with experience in chat moderation and onli
 I am reliable, patient, organized, and attentive to detail. I enjoy helping people find solutions and creating positive experiences through respectful and effective communication.
 
 I am currently building my skills in remote customer service, live chat support, email support, and online customer experience.
+
+
+---
+
+## Professional Profile
+
+### Services I Offer
+
+- Customer Service
+- Live Chat Support
+- Email Support
+- Chat Moderation
+- Customer Communication
+- Customer Issue Resolution
+- Remote Support
+
+### Work Style
+
+I am committed to providing professional, respectful, timely, and customer-focused support. I am comfortable working remotely and learning new platforms and systems.
+
+### Contact Me
+
+For professional opportunities and customer support projects, please contact me through my professional channels.
+
+**GitHub:** [SKYDESK Portfolio](https://github.com/Evy-maina/skydesk-portfolio)
+
+---
+
+## SKYDESK
+
+**Professional Support. Better Customer Experiences.**
