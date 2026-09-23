@@ -64,3 +64,110 @@ To help businesses provide fast, friendly, reliable, and professional customer s
 Available for remote customer service, chat support, and moderation opportunities.
 
 **SKYDESK — Professional Support. Better Customer Experiences.**
+
+
+
+
+---
+
+## Customer Service Case Studies
+
+### Case Study 1 — Live Chat Support
+
+**Situation:**  
+A customer contacted support because their order had been delayed.
+
+**Customer:**  
+"I've been waiting for my order for several days. Can you please tell me what's happening?"
+
+**My Response:**  
+"Hi! I'm sorry that your order has been delayed. I understand how frustrating it can be to wait longer than expected. Let me check the status of your order and provide you with an update. Thank you for your patience."
+
+**Skills Demonstrated:**
+- Empathy
+- Professional communication
+- Active listening
+- Problem solving
+- Customer reassurance
+
+---
+
+### Case Study 2 — Email Support
+
+**Situation:**  
+A customer wanted more information about a service before making a decision.
+
+**Customer:**  
+"Hello, I'd like to know more about your service and what is included."
+
+**My Response:**  
+"Hello, thank you for reaching out. I'd be happy to provide more information about our service. I can explain what is included, how the service works, and answer any questions you may have. Please let me know which aspect you'd like me to clarify first."
+
+**Skills Demonstrated:**
+- Clear communication
+- Professional email writing
+- Product/service explanation
+- Customer engagement
+
+---
+
+### Case Study 3 — Problem Solving
+
+**Situation:**  
+A customer reported that they were unable to access their account.
+
+**Customer:**  
+"I can't log into my account and I need help."
+
+**My Response:**  
+"Hi, I'm sorry you're having trouble accessing your account. I'll be happy to help you troubleshoot this. First, let's confirm whether you're receiving an error message when you try to log in. Once I have that information, I can guide you through the appropriate next steps."
+
+**Skills Demonstrated:**
+- Troubleshooting
+- Patience
+- Step-by-step communication
+- Problem solving
+- Customer support
+
+---
+
+## My Customer Service Approach
+
+At SKYDESK, I believe good customer service means:
+
+- Listening before responding
+- Communicating clearly and respectfully
+- Showing empathy
+- Taking ownership of customer concerns
+- Finding practical solutions
+- Protecting customer confidentiality
+- Following up when necessary
+
+---
+
+## Tools I Can Work With
+
+I am comfortable learning and working with online tools used for:
+
+- Live chat
+- Email communication
+- Customer support
+- Team communication
+- Task management
+- Online collaboration
+
+I am also willing to learn new customer service platforms and tools required by each company.
+
+---
+
+## Availability
+
+I am open to remote opportunities in:
+
+- Customer Service
+- Chat Support
+- Email Support
+- Chat Moderation
+- Virtual Customer Support
+
+**SKYDESK — Professional Support. Better Customer Experiences.**
