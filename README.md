@@ -171,3 +171,11 @@ I am open to remote opportunities in:
 - Virtual Customer Support
 
 **SKYDESK — Professional Support. Better Customer Experiences.**
+
+
+
+I am a customer-focused professional with experience in chat moderation and online communication. My experience has strengthened my ability to communicate clearly, handle customer interactions professionally, maintain confidentiality, and remain calm when dealing with different customer needs.
+
+I am reliable, patient, organized, and attentive to detail. I enjoy helping people find solutions and creating positive experiences through respectful and effective communication.
+
+I am currently building my skills in remote customer service, live chat support, email support, and online customer experience.
