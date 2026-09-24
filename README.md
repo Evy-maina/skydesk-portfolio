@@ -199,11 +199,6 @@ I am currently building my skills in remote customer service, live chat support,
 
 I am committed to providing professional, respectful, timely, and customer-focused support. I am comfortable working remotely and learning new platforms and systems.
 
-### Contact Me
-
-For professional opportunities and customer support projects, please contact me through my professional channels.
-
-**GitHub:** [SKYDESK Portfolio](https://github.com/Evy-maina/skydesk-portfolio)
 
 ---
 
