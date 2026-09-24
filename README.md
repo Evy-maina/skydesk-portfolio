@@ -170,7 +170,6 @@ I am open to remote opportunities in:
 - Chat Moderation
 - Virtual Customer Support
 
-**SKYDESK — Professional Support. Better Customer Experiences.**
 
 
 
