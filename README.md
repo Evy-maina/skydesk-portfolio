@@ -213,3 +213,33 @@ I’m open to remote customer service, chat support, customer success, and onlin
 📧 **Email:** mainaevy@gmail.com
 
 💻 **GitHub:** [SKYDESK Portfolio](YOUR-GITHUB-LINK)
+
+## Professional Profile
+
+### Services I Offer
+
+- Customer Service
+- Live Chat Support
+- Email Support
+- Chat Moderation
+- Customer Communication
+- Customer Issue Resolution
+- Remote Support
+
+### Work Style
+
+I am committed to providing professional, respectful, timely, and customer-focused support. I am comfortable working remotely and learning new platforms and systems.
+
+## SKYDESK
+
+**Professional Support. Better Customer Experiences.**
+
+SKYDESK is my professional customer support portfolio, showcasing my skills, approach, and practical examples in customer service and remote support.
+
+## Contact Me
+
+I’m open to remote opportunities in customer service, chat support, customer success, email support, and online support.
+
+📧 **Email:** mainaevy@gmail.com
+
+💻 **GitHub:** [SKYDESK Portfolio](https://github.com/Evy-maina/skydesk-portfolio)
