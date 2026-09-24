@@ -210,3 +210,11 @@ For professional opportunities and customer support projects, please contact me 
 ## SKYDESK
 
 **Professional Support. Better Customer Experiences.**
+
+## Contact Me
+
+I’m open to remote customer service, chat support, customer success, and online support opportunities.
+
+📧 **Email:** mainaevy@gmail.com
+
+💻 **GitHub:** [SKYDESK Portfolio](YOUR-GITHUB-LINK)
