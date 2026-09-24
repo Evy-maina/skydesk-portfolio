@@ -199,37 +199,6 @@ I am currently building my skills in remote customer service, live chat support,
 
 I am committed to providing professional, respectful, timely, and customer-focused support. I am comfortable working remotely and learning new platforms and systems.
 
-
----
-
-## SKYDESK
-
-**Professional Support. Better Customer Experiences.**
-
-## Contact Me
-
-I’m open to remote customer service, chat support, customer success, and online support opportunities.
-
-📧 **Email:** mainaevy@gmail.com
-
-💻 **GitHub:** [SKYDESK Portfolio](YOUR-GITHUB-LINK)
-
-## Professional Profile
-
-### Services I Offer
-
-- Customer Service
-- Live Chat Support
-- Email Support
-- Chat Moderation
-- Customer Communication
-- Customer Issue Resolution
-- Remote Support
-
-### Work Style
-
-I am committed to providing professional, respectful, timely, and customer-focused support. I am comfortable working remotely and learning new platforms and systems.
-
 ## SKYDESK
 
 **Professional Support. Better Customer Experiences.**
